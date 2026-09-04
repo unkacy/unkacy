@@ -1,5 +1,5 @@
 <h1 align="center">kacy unkacy on socials</h1>
-<h3 align="center">lowk just made this for ponytown, but yk ill make it something eventually, check out my strawpage</h3>
+<h3 align="center">c+h and int, i dont mind</h3>
 
 - lowk just made this for ponytown, but yk ill make it something eventually [check out my strawpage](https://kacy.straw.page/)
 

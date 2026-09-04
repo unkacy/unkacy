@@ -1,4 +1,4 @@
-## Hi thhere 👋
+## c+h , find more out about me at https://kacy.straw.page/
 
 <!--
 **unkacy/unkacy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

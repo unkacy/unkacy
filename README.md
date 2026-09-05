@@ -1,7 +1,7 @@
 <h1 align="center">kacy unkacy on socials</h1>
 <h3 align="center">c+h and int, i dont mind. please dnc</h3>
 
-- lowk still figuring github out but i js wanted to make one since i came back to ponytown, dni right winger + right wing beliefs [check out my strawpage](https://kacy.straw.page/)
+- lowk still figuring github out
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
